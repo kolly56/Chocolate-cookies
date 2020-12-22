@@ -1,0 +1,10 @@
+- 160 gr Butter ( 1 1/3 sticks + 1 tbsp )
+- 100 gr White Sugar ( 1/2 cup)
+- 100 gr Brown Sugar (1/2 cup)
+- 1 Large Egg
+- 1 tsp Vanilla
+- 1 tbsp Milk ( YOU MAY NOT NEED IT, Check video )
+- 300 grams All Purpose Flour ( 2 cups )
+- 1/2 tsp Baking Powder
+- 1/2 tsp Salt
+- Chocolate Chips
